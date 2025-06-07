@@ -1,5 +1,5 @@
 # 💫 About Me:
-Heyyyyy !
+Heyyyyy !I am Arpan , a tech enthusiast !
 
 
 ## 🌐 Socials:
